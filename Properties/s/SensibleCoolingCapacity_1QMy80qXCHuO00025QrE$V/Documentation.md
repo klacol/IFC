@@ -1,0 +1,1 @@
+﻿Sensible cooling capacity.
